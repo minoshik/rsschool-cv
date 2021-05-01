@@ -4,5 +4,5 @@
 ##### 4. I'm strong 3D Generalist
 ##### 5. I do not have Code examples for now
 ##### 6. I do not have Experience 
-##### 7. Education: RS school
+##### 7. Education: RS school, Youtube
 ##### 8. English Level B1+, good spoken English
